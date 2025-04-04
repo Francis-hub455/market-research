@@ -1,4 +1,4 @@
-Colloidal Silica Market Reaching USD 342.3 Million by 2030 | FMI
+# Colloidal Silica Market Reaching USD 342.3 Million by 2030 | FMI
 
 The global colloidal silica industry demand was valued at USD 252.0 million in 2022 and is projected to expand at a CAGR of 3.9% during the forecast period (2022-2030).
 
