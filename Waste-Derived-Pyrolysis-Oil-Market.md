@@ -1,4 +1,4 @@
-#Waste-Derived Pyrolysis Oil Market Expected to Reach USD 571.8 Million by 2034
+# Waste-Derived Pyrolysis Oil Market Expected to Reach USD 571.8 Million by 2034
 
 The waste-derived pyrolysis oil market is navigating the fiercely competitive landscape at a moderate CAGR of 5.1% through 2034. It will elevate the market size to USD 571.8 million from USD 347.6 million.
 
