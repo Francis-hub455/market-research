@@ -1,4 +1,4 @@
-Carbon Nanotubes Transforming Energy Storage, Electronics, and Aerospace | FMI
+# Carbon Nanotubes Transforming Energy Storage, Electronics, and Aerospace | FMI
 
 The global carbon nanotubes (CNT) market is on the verge of an unprecedented expansion, projected to grow from USD 1,166.2 million in 2025 to an astounding USD 2,812.1 billion by 2035. This surge reflects a robust compound annual growth rate (CAGR) of 9.2%, driven by advancements in nanotechnology and an increasing demand for CNTs across multiple industries, particularly in energy storage, electronics, and automotive sectors. With superior mechanical, electrical, and thermal properties, CNTs are revolutionizing materials science and industrial applications.
 
