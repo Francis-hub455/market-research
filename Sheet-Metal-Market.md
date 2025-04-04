@@ -1,4 +1,4 @@
-Sheet Metal Market: A Growing Industry with Expanding Opportunities and Trends
+# Sheet Metal Market: A Growing Industry with Expanding Opportunities and Trends
 
 The global sheet metal market is projected to attain a valuation of USD 316 billion by the end of 2023, with expectations to expand at a Compound Annual Growth Rate (CAGR) of 4% over the forecast period, reaching approximately USD 467.76 billion by 2033.
 
